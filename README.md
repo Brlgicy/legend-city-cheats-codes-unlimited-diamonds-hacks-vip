@@ -1,2 +1,5 @@
-# legend-city-cheats-codes-unlimited-diamonds-hacks-vip
-Legend City Cheats Codes unlimited free diamonds Hacks vip guide
+# Legend City Cheats Codes unlimited free diamonds Hacks vip guide
+
+Legend City Cheats Codes unlimited free diamonds Hacks vip guide - All of these buildings can be upgraded, moved or demolished as needed. Later, you will unlock the dedicated building to produce some equipment, but these equipment are often guarded by hostile mobs, so you must clear them before you can use them. The available batches are related to your account ranking and can be increased by completing certain tasks, thus allowing you to further expand. We will discuss this later. Now, you have to build a department store to make money. To maintain control of Milos, you need cash. To make money, you need to create housing and employment opportunities. There should be some free space on the left side of the city. The game will first instruct you to build a villa to accommodate new people; This should not take long to complete. There are three types of buildings: residential, commercial and tourism. Legend City redeem codes that work
+
+[Get now](https://fengmod.top/legend-city/)
